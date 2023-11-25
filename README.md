@@ -1,2 +1,2 @@
-# ALPHA GAME
- Alpha model
+# Gun Phobia(ALPHA MODEL)
+ Alpha Model
